@@ -1,0 +1,1 @@
+Bienvenidos a mi búsqueda. Soy Javier Morales, médico y curioso incorregible. Aquí documentaré todo sobre un hongo que borra memorias y un portador que se esfumó. Este es un espacio para San Tadeo: sus historias, sus olvidos. Lee, escribe, busca conmigo."
